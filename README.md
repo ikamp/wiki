@@ -1,1 +1,1 @@
-İkamp wiki page
+İKamp wiki page
